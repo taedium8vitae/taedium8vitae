@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @taedium8vitae or taediumvitae (but the username wasn't available )
+- 👋 Hi, I’m @taedium8vitae or taediumvitae (the username wasn't available)
 - 👀 I’m not interested in anything particular but like to help when I can :)
 - 📫 You can reach me on Discord taediumvitae#6515
 
